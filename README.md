@@ -1,4 +1,4 @@
-# Tailor Brands Coupon (2025) → Get Up to 70% Off on Plans
+# Tailor Brands Coupon (2025): Get 70% Discount on First order
 
 Looking for a working **Tailor Brands coupon** in 2025?
 
